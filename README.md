@@ -17,7 +17,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1yzoMUgb2ZowAMv91tOvmdSRxVyNlhMaB/view?usp=sharing](https://drive.google.com/file/d/1yzoMUgb2ZowAMv91tOvmdSRxVyNlhMaB/view?usp=sharing)
 
-- ⚡ Fun fact **In addition to being an avid skier, climber, and hiker, I also love to explore new outdoor activities.**
+- ⚡ Fun fact **I enjoy skiing, climbing, and hiking. When I'm not working on my PhD, I enjoy trying out new outdoor activities.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
