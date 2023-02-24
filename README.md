@@ -11,7 +11,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/indukantdeo](https://github.com/indukantdeo)
 
-- 💬 Ask me about **anything related to scientific machine learning. I love talking about the subject I will be really happy to help you out.**
+- 💬 Ask me about **anything related to scientific machine learning. I love talking about the subject, and I will be really happy to help you out.**
 
 - 📫 How to reach me **email me or connect on LinkedIn.**
 
