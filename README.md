@@ -15,7 +15,7 @@
 
 - 📫 How to reach me: **email me or connect on LinkedIn.**
 
-- 📄 Know about my experiences [[https://drive.google.com/file/d/1yzoMUgb2ZowAMv91tOvmdSRxVyNlhMaB/view?usp=sharing](https://drive.google.com/file/d/1yzoMUgb2ZowAMv91tOvmdSRxVyNlhMaB/view?usp=sharing](https://drive.google.com/file/d/1DXRcbQJLOf1KAsBAX00DxoUIQeq_Opx4/view?usp=drive_link))
+- 📄 Know about my experiences [Link]([https://drive.google.com/file/d/1yzoMUgb2ZowAMv91tOvmdSRxVyNlhMaB/view?usp=sharing](https://drive.google.com/file/d/1DXRcbQJLOf1KAsBAX00DxoUIQeq_Opx4/view?usp=drive_link)](https://drive.google.com/file/d/1DXRcbQJLOf1KAsBAX00DxoUIQeq_Opx4/view?usp=drive_link))
 
 - ⚡ Fun fact **I enjoy skiing, climbing, and hiking. When I'm not working on my PhD, I enjoy trying out new outdoor activities.**
 
