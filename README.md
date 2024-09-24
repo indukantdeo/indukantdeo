@@ -13,9 +13,9 @@
 
 - 💬 Ask me about **anything related to scientific machine learning. I love talking about the subject, and I will be really happy to help you out.**
 
-- 📫 How to reach me **email me or connect on LinkedIn.**
+- 📫 How to reach me: **email me or connect on LinkedIn.**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1yzoMUgb2ZowAMv91tOvmdSRxVyNlhMaB/view?usp=sharing](https://drive.google.com/file/d/1yzoMUgb2ZowAMv91tOvmdSRxVyNlhMaB/view?usp=sharing)
+- 📄 Know about my experiences [[https://drive.google.com/file/d/1yzoMUgb2ZowAMv91tOvmdSRxVyNlhMaB/view?usp=sharing](https://drive.google.com/file/d/1yzoMUgb2ZowAMv91tOvmdSRxVyNlhMaB/view?usp=sharing](https://drive.google.com/file/d/1DXRcbQJLOf1KAsBAX00DxoUIQeq_Opx4/view?usp=drive_link))
 
 - ⚡ Fun fact **I enjoy skiing, climbing, and hiking. When I'm not working on my PhD, I enjoy trying out new outdoor activities.**
 
